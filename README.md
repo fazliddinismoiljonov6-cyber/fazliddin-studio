@@ -1,0 +1,2 @@
+# fazliddin-studio
+yuksalish
